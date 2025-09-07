@@ -1,3 +1,4 @@
+DISCLAMER. THIS IS A GAME I DOWNLOAED FROM THE AUTHOR. THANKS A LOT. 
 ![](http://i.imgur.com/xswo3w8.png "test")
 ==============================================
 
